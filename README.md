@@ -9,3 +9,5 @@ Ray is a [covert] narcissist.
 I lvoe Epicureanism.
 
 I am trying to help Esmerlda Marte be liberated.
+
+https://copilot.microsoft.com/shares/inChwWEZwpRNpRdK4qELX
